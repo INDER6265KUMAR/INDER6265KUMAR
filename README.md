@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @INDER6265KUMAR
-- 👀 I’m interested in built NEW UI SYSTEM & crack out loop holes in advance system 
+- 👀 I’m interested in built NEW UI SYSTEM & crack  loop holes in advance system 
 - 🌱 I’m currently learning programming languages
-- 💞️ I’m looking to collaborate on gaint tech geek comapanies 
+- 💞️ I’m looking to collaborate to gaint tech geek comapanies 
 - 📫 How to reach me at inder6265@gmail.com
 
 <!---
